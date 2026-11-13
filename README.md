@@ -2,3 +2,4 @@
 - If your blocked by me it's probably for a good reason dni ok
 - Don't cover my character on purpose(except some certain situations), i believe that i don't have cd(cover discomfort) but it's really annoying for someone to just straight up covering me
 - USE COMMON SENSE!! Anything that I haven't listed here, feel free to suggest me in my strawpage or atabook.
+- I'm kinda a loose boundaries guy(haha 9 fix) but if you make me uncomfortable i'll kindly make sure to let you know
