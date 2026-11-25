@@ -5,3 +5,4 @@
 - Like i mentioned in my other readme thingy, you can c + h me freely
 - USE COMMON SENSE!! Anything that I haven't listed here, feel free to suggest me in my strawpage or atabook.
 - I'm kinda a loose boundaries guy(haha 9 fix) but if you make me uncomfortable i'll kindly make sure to let you know
+- No, do not mention anything about suicide and self-harm towards me(unless venting).
